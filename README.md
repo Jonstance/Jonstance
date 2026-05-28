@@ -49,7 +49,7 @@ I'm particularly interested in:
 
 - Email: etiosaconstance@gmail.com
 - LinkedIn: https://www.linkedin.com/in/constanceetiosa/
-- Portfolio: [https://johnny.karfi.co/](https://johnnyetin.netlify.app/)
+- Portfolio: https://constanceetin.xyz/
 
 ---
 
